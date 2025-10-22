@@ -11,7 +11,7 @@
 </div>
 
 ## 🪞 Tentang Saya
-Halo! Saya **Tobi**, kreator di balik channel **Satu Jentikan Jari** — sebuah proyek konten yang berfokus pada _storytelling reflektif_ seputar **kasus nyata, misteri sosial, dan kisah manusia yang penuh makna**.  
+Halo! Saya **Maulana Agustian**, kreator di balik channel **Satu Jentikan Jari** — sebuah proyek konten yang berfokus pada _storytelling reflektif_ seputar **kasus nyata, misteri sosial, dan kisah manusia yang penuh makna**.  
 Saya mengemasnya dengan gaya santai seperti ngobrol bareng teman, tapi tetap menjaga nilai edukasi dan empati di setiap cerita.
 
 > 🎧 Cerita bukan sekadar informasi — tapi pengalaman yang menyentuh logika dan hati.
